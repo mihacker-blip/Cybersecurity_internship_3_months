@@ -1,1 +1,1 @@
-# Cybersecurity_internship_2_months
+# Cybersecurity_internship_3_months
